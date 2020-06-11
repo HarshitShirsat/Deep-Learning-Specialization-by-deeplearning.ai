@@ -1,0 +1,1 @@
+No Assignments in Course 3
